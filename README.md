@@ -1,1 +1,1 @@
-# 1Azaf
+To jest faza 1
