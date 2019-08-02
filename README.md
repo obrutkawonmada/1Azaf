@@ -1,1 +1,1 @@
-To jest faza 1
+"KtyexZpTA9RGPRrph2EqpUTVASfpJtSbiCk3AQbZub1UAnl/ybC123QrEDCyEbq2"
